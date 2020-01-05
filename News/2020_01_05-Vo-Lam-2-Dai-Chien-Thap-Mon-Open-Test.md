@@ -17,17 +17,17 @@ Sever Open test dự kiến 05-01-2019 -> 08-01-2019 ( có thể kéo dài hơn)
 
 📛 Thông tin sever
 
-- Nhận mọi thứ từ công trạng đến kim phiếu tẹt ga
+☑️ Nhận mọi thứ từ công trạng đến kim phiếu tẹt ga
 
-- Nhận các trang bị từ diệu dương chiến cuông đên thiên hạ vô song,kim xà 6,vô cực minh tinh...
+☑️ Nhận các trang bị từ diệu dương chiến cuông đên thiên hạ vô song,kim xà 6,vô cực minh tinh...
 
-- Nhận quân hàm nguyên soái
+☑️ Nhận quân hàm nguyên soái
 
-- Nhận MTSC x30, mật tịch tiêu dao...
+☑️ Nhận MTSC x30, mật tịch tiêu dao...
 
-- Nhận Thú cưỡi mới bao đẹp bao ngầu
+☑️ Nhận Thú cưỡi mới bao đẹp bao ngầu
 
-- Nhận lag 9x...
+☑️ Nhận lag 9x...
 
 👉 Mọi thứ đều free vậy thì còn chần chờ gì mà không tham gia ngay
 
