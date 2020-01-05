@@ -17,4 +17,3 @@ Sever Open test dự kiến 05-01-2019 -> 08-01-2019 ( có thể kéo dài hơn)
 - Nhận Thú cưỡi mới bao đẹp bao ngầu
 - Nhận lag 9x...
 👉 Mọi thứ đều free vậy thì còn chần chờ gì mà không tham gia ngay
-
