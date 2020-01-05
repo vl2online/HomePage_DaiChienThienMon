@@ -1,4 +1,4 @@
-title:🔈 Võ Lâm 2 Đại Chiến Thập Môn Open Test Tháng 1 2020
+title:🔈 Võ Lâm 2 - Đại Chiến Thập Môn Open Test Tháng 1
 image:
 date: 2020/01/05
 
