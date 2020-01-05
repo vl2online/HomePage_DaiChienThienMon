@@ -1,5 +1,5 @@
 title:🔈 Võ Lâm 2 Đại Chiến Thập Môn Open Test Tháng 1 2020
-image:https://i.imgur.com/KjrxYtn.png
+image:
 date: 2020/01/05
 
 🔰Trang chủ: https://vl2.online
