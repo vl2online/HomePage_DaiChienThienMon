@@ -6,7 +6,7 @@ date:2020/01/16
 
 ## Chào mừng Open Server Tranh Bá với chuỗi event như sau:
 
-⚽⚽ Thời gian từ 17 - 24h 09/02/2019.
+⚽⚽ Thời gian từ 17 - 24h 09/02/2020.
 
 ## NPC Sự kiện Tranh Bá Đại Long (Biện Kinh)
 
