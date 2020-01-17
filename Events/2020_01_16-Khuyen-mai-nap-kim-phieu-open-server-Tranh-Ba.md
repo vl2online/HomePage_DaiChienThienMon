@@ -1,12 +1,12 @@
 title:Khuyến mại nạp kim phiếu open server 17/01 đến 25/01/2020
-image:https://i.imgur.com/8Dluv9L.jpg
+image:https://i.imgur.com/RDvWyc7.jpg
 date:2020/01/16
 
 ⚡️ OPEN nho nhỏ, QUÀ về siêu to!! ⚡️
 
 🙋‍♂️ Để hỗ trợ cho các nhân sĩ Nhân dịp Khai mở máy chủ Thập Môn Tranh Bá, từ ngày 17/1 - 25/1/2020, khi nạp Kim phiếu qua Banking sẽ được + 50% , nạp qua Thẻ cào sẽ được + 30%
 
-![Image](https://i.imgur.com/8Dluv9L.jpg)
+![Image](https://i.imgur.com/RDvWyc7.jpg)
 
 🙋‍♀️ Đừng quên Nhận CODE để rinh quà tặng về chơi nhaaa ^^
 
