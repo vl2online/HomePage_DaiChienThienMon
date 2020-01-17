@@ -4,7 +4,7 @@ date:2020/01/17
 
 ![Image](https://i.imgur.com/uTsG6qJ.jpg)
 
-## 20h Ngày 17/02/2020 Chính Thức Open Server Võ Lâm 2 Thập Môn Tranh Bá.
+## 20h Ngày 17/01/2020 Chính Thức Open Server Võ Lâm 2 Thập Môn Tranh Bá.
 
 📛📛📛 Chuỗi Sự Kiện:
 
