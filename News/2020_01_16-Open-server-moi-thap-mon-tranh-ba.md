@@ -1,6 +1,6 @@
 title:Chính Thức Open Server Võ Lâm 2 Thập Môn Tranh Bá
 image:https://i.imgur.com/uTsG6qJ.jpg
-date:2020/01/17
+date:2020/01/16
 
 ![Image](https://i.imgur.com/uTsG6qJ.jpg)
 
