@@ -2,7 +2,6 @@ title:Event Tết Nguyên Đán 2020 Server Võ Lâm 2 Lậu Online
 image:https://i.imgur.com/nRX9lZY.jpg
 date:2020/01/22
 
-
 ![](https://i.imgur.com/uRbQeHc.png)
 
 🔔🔔🔔🔔Từ Thứ 5 ngày 23/01/2020 - 24h ngày 05/02/2020
@@ -95,4 +94,4 @@ Vậy thì còn chần chờ gì, tải game về và trải nghiệm thôiiiii 
 
 🔰Groups: https://www.facebook.com/groups/vl2online
 
-🔰Tải Game: https://vl2.online/Download
+🔰Tải Game: https://vl2.online/taigame
