@@ -21,7 +21,7 @@ Thông báo kéo dài thời gian test server Võ Lâm 2 - Đại Chiến Thập
 🔰Đăng Ký: https://vl2.online/register
 🔰Fangpage: https://www.facebook.com/vl2dctm
 🔰Groups: https://www.facebook.com/groups/vl2online
-🔰Tải Game: https://vl2.online/Download
+🔰Tải Game: https://vl2.online/taigame
 
 English Version:
 

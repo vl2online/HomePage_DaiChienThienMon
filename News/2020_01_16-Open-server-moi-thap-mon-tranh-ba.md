@@ -25,4 +25,4 @@ date:2020/01/16
 
 🔰Groups: https://www.facebook.com/groups/vl2online
 
-🔰Tải Game: https://vl2.online/Download
+🔰Tải Game: https://vl2.online/taigame

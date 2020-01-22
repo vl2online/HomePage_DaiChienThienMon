@@ -61,4 +61,4 @@ Vậy thì còn chần chờ gì, tải game về và chờ khai mở máy chủ
 
 🔰Groups: https://www.facebook.com/groups/vl2online
 
-🔰Tải Game: https://vl2.online/Download
+🔰Tải Game: https://vl2.online/taigame

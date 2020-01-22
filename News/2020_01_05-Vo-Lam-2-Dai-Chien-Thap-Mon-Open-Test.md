@@ -10,7 +10,7 @@ date: 2020/01/05
 
 🔰Groups: https://www.facebook.com/groups/vl2online
 
-🔰Tải Game: https://vl2.online/Download
+🔰Tải Game: https://vl2.online/taigame
 
 
 Sever Open test dự kiến 05-01-2019 -> 08-01-2019 ( có thể kéo dài hơn)

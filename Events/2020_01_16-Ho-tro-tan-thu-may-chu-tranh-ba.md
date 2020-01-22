@@ -1,10 +1,10 @@
 title:Hỗ trợ tân thủ gia nhập máy chủ Tranh Bá
-image:https://i.imgur.com/cfvgyoV.jpg
+image:https://i.imgur.com/yMDbwAt.png
 date:2020/01/16
 
 ⚡️ Nhằm hỗ trợ chư vị tân thủ gia nhập máy chủ Tranh Bá tháng 1 này, trưởng bản kính tặng chư vị một số vật phẩm cấp độ như sau
 
-![Image](https://i.imgur.com/cfvgyoV.jpg)
+![Image](https://i.imgur.com/yMDbwAt.png)
 
 🙋‍♀️ Đừng quên Nhận CODE để rinh quà tặng về chơi nhaaa ^^
 
@@ -24,4 +24,4 @@ Vậy thì còn chần chờ gì, tải game về và chờ khai mở máy chủ
 
 🔰Groups: https://www.facebook.com/groups/vl2online
 
-🔰Tải Game: https://vl2.online/Download
+🔰Tải Game: https://vl2.online/taigame

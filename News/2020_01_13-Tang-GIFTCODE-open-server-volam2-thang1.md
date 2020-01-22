@@ -33,7 +33,7 @@ VLTK 2 là một trong những cái tên quá quen thuộc với rất nhiều t
 
 🔰Groups: https://www.facebook.com/groups/vl2online
 
-🔰Tải Game: https://vl2.online/Download
+🔰Tải Game: https://vl2.online/taigame
 
 
 Sever Thập Môn Tranh Bá khi Open sẽ hướng AE tới lối chơi cày cấp luyện đồ kinh điển khi xưa của dòng game Võ Lâm với một số tính năng nổi bật:
