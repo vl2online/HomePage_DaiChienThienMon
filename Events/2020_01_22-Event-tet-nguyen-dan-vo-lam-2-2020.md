@@ -44,7 +44,7 @@ Cách để Chúc Tết NPC là hành động Lễ Phép
 
 🎁 50tr Kinh Nghiệm + Bảo Rương Niên Thú
 
-Lưu Ý: Sẽ chỉ nhận được 30 Quả Pháo tại hoạt động Lì Xì Chúc tết. Muốn ăn tối đa 50 lần cần mua thêm 20 Quả Pháo tại NPC Hoạt Động (50VPX / 1 Quả)
+Lưu Ý: Sẽ chỉ nhận được 30 Quả Pháo tại hoạt động Lì Xì Chúc tết. Muốn ăn tối đa 100 lần cần mua thêm 70 Quả Pháo tại NPC Hoạt Động (50VPX / 1 Quả)
 
 Item Liên Quan:
 
