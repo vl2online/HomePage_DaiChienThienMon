@@ -38,7 +38,7 @@ Cách để Chúc Tết NPC là hành động Lễ Phép
 
 ![Image](https://i.imgur.com/1OMF7fA.jpg)
 
-## 🏅🏅 Hoạt Động Đánh Niên Thú: 12h00 & 21h00 hằng ngày (50 Lần/Ngày)
+## 🏅🏅 Hoạt Động Đánh Niên Thú: 12h00 & 21h00 hằng ngày (100 Lần/Ngày)
 
 ![](https://i.imgur.com/U0DEf1f.png)
 
