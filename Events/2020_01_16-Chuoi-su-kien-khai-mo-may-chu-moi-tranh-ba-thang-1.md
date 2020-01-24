@@ -15,6 +15,7 @@ date:2020/01/16
 ## Thăng cấp nhận quà
 
 Khi đạt các mốc cấp độ hãy tới NPC Tranh Bá Đại Long ở Biện Kinh để nhận phần thưởng.
+Yêu cầu 3k Danh Vọng 4k Sư Môn 80k Công Trạng.
 
 ![](https://i.imgur.com/U0DEf1f.png)
 
