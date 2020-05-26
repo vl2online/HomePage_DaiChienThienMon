@@ -18,9 +18,10 @@ Nhập  code tại Thẻ tân thủ -> Nhập code
 
 * Code vl2onlineMini4: để có thể nhập được code này AE vui lòng tham gia Mini game tại link này:
  https://www.facebook.com/104010424449900/posts/164041065113502/?d=n
+ 
 Sau khi hoàn thành các bước Like Share Cmt tại link trên, nhắn tin tên nhân vật của bạn vào fanpage JX2 Truyền Kỳ - Khởi Phượng:
-https://www.facebook.com/jx2serversea ,admin sẽ add code vào nhân vật của bạn.
-Sau cùng,  bạn chỉ cần vào game nhập code vl2onlineMini4 là đã hoàn thành nhé.
+Link fanpage: https://www.facebook.com/jx2serversea ,admin sẽ add code vào nhân vật của bạn.
+Sau cùng,  bạn chỉ cần vào game nhập code vl2onlineMini4 là xong nhé.
 + Đối với nhân vật < 200k công trạng: tăng ngay lên 200k công trạng + 5 thanh long tinh hoa
 + Đối với nhân vật > 200k công trạng: nhận 5 QCVD + 5 thanh long tinh hoa
 
@@ -36,6 +37,7 @@ Code for new players at Swordsman GM -> Gift code
 + 5 Seed of prajna
 + 1 Yellow Leopards baby
 + 2 Battlefield Tally
+![Image](https://i.imgur.com/6QSBmAj.png)
 * Code vl2onlineMini4: join mini game at here: https://www.facebook.com/104010424449900/posts/164041065113502/?d=n
 After completing, inbox to fanpage JX2 Truyền Kỳ - Khởi Phượng your character's name. Admin will add code for your character.
 Finally, enter code vl2onlinettt at Swordsman GM.
